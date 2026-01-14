@@ -5,4 +5,4 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=civided)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 ‎ ‎ ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lilita+One&size=24&duration=3000&color=F7962C&center=true&vCenter=true&width=435&lines=VICE+VERSA+VICE+VERSUS+VIRTUE;AND+WHO+I+AM+I+CHOOSE;THROUGHT+THE+THINGS+I+DO;AND+IF+IT+RHYMES+IT'S+TRUE;BUT+I+HATE+POETRYYYY)](https://git.io/typing-svg)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lilita+One&size=24&duration=3000&color=F7962C&center=true&vCenter=true&width=435&lines=VICE+VERSA+VICE+VERSUS+VIRTUE;AND+WHO+I+AM+I+CHOOSE;THROUGH+ALL+THE+THINGS+I+DO;AND+IF+IT+RHYMES+IT'S+TRUE;BUT+I+HATE+POETRYYYY)](https://git.io/typing-svg)
