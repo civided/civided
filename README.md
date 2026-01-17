@@ -1,3 +1,5 @@
+
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://media1.tenor.com/m/_u1MJuQnHUkAAAAC/lifesteal-spokeishere.gif)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [𝒄𝒂𝒓𝒓𝒅](https://civided.carrd.co/)‎ ‎ ‎ ‎ ‎ ‎ ![](https://files.catbox.moe/bg3cdm.gif) ‎ ‎ ‎ ‎ ‎ [𝒂𝒕𝒂](https://aspenfagas.atabook.org/) ‎ ‎ ‎ ‎ ‎ ![](https://files.catbox.moe/t4bvvg.gif) ‎ ‎ ‎ ‎ ‎ [strawp](https://civivded.straw.page/) ‎ ‎ ‎ ‎ ‎ ![](https://files.catbox.moe/0nfiou.gif)
@@ -12,3 +14,5 @@
 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎c+h and interacting is alyways encouraged ! i love love love making new friends !! im mostly offtab so w2i 
 
 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
