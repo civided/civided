@@ -7,7 +7,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=civided)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 ‎ ‎ ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Charm&size=24&duration=2998&color=F7962C&center=true&vCenter=true&width=435&lines=TALK+TO+ME+IN+FRENCH;TALK+TO+ME+IN+SPANISH;TALK+TO+ME+IN+YOUR+OWN;MADE+UP+LANGUAGE;DOESNT+MATTER+IF+I+UNDERSTAND+!!!)](https://git.io/typing-svg)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lilita+One&size=24&duration=3000&color=F7962C&center=true&vCenter=true&width=435&lines=WHY+YALL+SO+SALTY%3F;HOT+TAMALE+IS+ON+!)](https://git.io/typing-svg)
 
 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![](https://64.media.tumblr.com/3ac5d583c6ccdaf8969888a5f4ebc0b2/9fb4b3eea2c78c19-2a/s100x200/939c05d9f2c4d59b0e839b7b1804e91b4912a7bd.pnj)
 
