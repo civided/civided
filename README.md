@@ -9,7 +9,7 @@
 ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lilita+One&size=24&duration=3000&color=F7962C&center=true&vCenter=true&width=435&lines=WHY+YALL+SO+SALTY%3F;HOT+TAMALE+IS+ON+!)](https://git.io/typing-svg)
 
-‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![](https://64.media.tumblr.com/3ac5d583c6ccdaf8969888a5f4ebc0b2/9fb4b3eea2c78c19-2a/s100x200/939c05d9f2c4d59b0e839b7b1804e91b4912a7bd.pnj)
+‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![](https://64.media.tumblr.com/3ac5d583c6ccdaf8969888a5f4ebc0b2/9fb4b3eea2c78c19-2a/s100x200/939c05d9f2c4d59b0e839b7b1804e91b4912a7bd.pnj)![](https://cdn.discordapp.com/attachments/1251572610916159642/1462403951570718772/IMG_4441.png?ex=696e1150&is=696cbfd0&hm=06e19b1f52b5811f38ba0e6acb292579553dc3f803cb35d75343522e2c0b70a9&)
 
 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎c+h and interacting is alyways encouraged ! i love love love making new friends !! im mostly offtab so w2i 
 
