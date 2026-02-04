@@ -3,7 +3,7 @@
 
 
 
-[![](https://files.catbox.moe/pxd2nt.png)](rentry.co)
+[![](https://files.catbox.moe/pxd2nt.png)](https://missingpiece.straw.page/)
 
 wip..ok? ok..
 
