@@ -14,6 +14,8 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Kosugi+Maru&size=16&duration=3000&pause=25&color=F75693&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=69&lines=%22+call+me+lover!+.+.;.+.+ill+take+you+for+a+drink+or+two+!+%22)](https://git.io/typing-svg)‎ 
 
+![](https://files.catbox.moe/woqsxt.png)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)
 
 
