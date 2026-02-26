@@ -13,7 +13,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&weight=900&size=16&duration=3000&color=970158&center=true&vCenter=true&multiline=true&repeat=false&width=719&height=167&lines=Where+were+you+during+the+Mafia%3F;+We+could+have+wiped+them+out+in+a+single+day+with+those+exploits%2C;Ash+would+have+been+nothing!;He+would+have+been+banned%2Cas+soon+as+he+tried+taking+over%2C;but+no%2C+you+were+gone.;Oh%2C+weren't+you+trying+to+protect+the+server%3F;WASN'T+THAT+YOUR+GOAL%3F)](https://git.io/typing-svg)‎  ‎ꫂ᭪݁
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&weight=900&size=16&duration=3000&color=970158&center=true&vCenter=true&multiline=true&repeat=false&width=719&height=167&lines=Where+were+you+during+the+Mafia%3F;+We+could+have+wiped+them+out+in+a+single+day+with+those+exploits%2C;Ash+would+have+been+nothing!;He+would+have+been+banned%2Cas+soon+as+he+tried+taking+over%2C;but+no%2C+you+were+gone.;Oh%2C+weren't+you+trying+to+protect+the+server%3F;WASN'T+THAT+YOUR+GOAL%3F)](https://git.io/typing-svg)‎  ‎ꫂ᭪݁
 
 ![](https://files.catbox.moe/woqsxt.png)
 
