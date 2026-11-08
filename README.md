@@ -10,7 +10,7 @@
  <details>  
 <summary>links</summary>
 
-  [Rentry](https://rentry.co/Bbb) [other rentry](https://rentry.co/sub-zero) [ext](https://rentry.co/inversion)
+  [Rentry](https://rentry.co/Bbb) [other rentry](https://rentry.co/sub-zero) [ext](https://rentry.co/inversion) [atabook](https://civided.atabook.org/)
 
 
 </details>
