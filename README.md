@@ -20,6 +20,8 @@ i use any pronouns or no pronouns
 
 and this is a wip again cz im lazy hi
 
+#1 UU!JAMATOP HATER I HATEHIM 😡😡😡😡😡😡😡🤬🤬🤬🤬🤬
+
 
 
 
