@@ -11,7 +11,7 @@
  <details>  
 <summary>links</summary>
 
-  [Rentry](https://rentry.co/Bbb) [other rentry](https://rentry.co/sub-zero) [ext](https://rentry.co/inversion) [atabook](https://civided.atabook.org/)
+  [Rentry](https://rentry.co/Bbb) [other rentry](https://rentry.co/sub-zero) [ext](https://rentry.co/inversion) [atabook](https://civided.atabook.org/) [prns.cc](https://pronouns.cc/@Cividedd)
 
 
 </details>
