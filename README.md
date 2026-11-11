@@ -23,7 +23,13 @@ and this is a wip again cz im lazy hi
 
 #1 UU!JAMATOP HATER I HATEHIM 😡😡😡😡😡😡😡🤬🤬🤬🤬🤬
 
+ <details>  
+<summary>my spoke themed rentries</summary>
 
+  [1](https://rentry.co/Bbb) [2](https://rentry.co/null-leader) [3](https://rentry.co/rescind) [4](https://rentry.co/theleader) 
+
+
+</details>
 
 
 <br clear="left"/>
